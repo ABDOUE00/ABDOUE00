@@ -1,6 +1,6 @@
 - 👋 Hi, I’m 
 - 👀 I’m interested in MOVISE,SPORT and CULTUER
-- 🌱 I’m currently digetal marketeing 
+- 🌱 I’m currently digetal marketeing manager
 - 💞️ I’m working at <a href="https://obestv.com/" title="best iptv subscription in uk,canada and usa</a>
 - 🌍 Please Visit My profile <a href="https://obestv.com/" title="your name">abdou</a>
 - ✨ <a href="https://obestv.com/the-best-iptv-uk-for-2024/" title="post title">the best iptv iptv uk</a>
